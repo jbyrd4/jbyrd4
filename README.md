@@ -1,3 +1,13 @@
+![banner-image](https://www.canva.com/design/DAE5ZSVzK_E/rppYuK2akrLZXNulNePfwQ/view?utm_content=DAE5ZSVzK_E&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
+
+# 📫 Get In Touch
+### LinkedIn: https://www.linkedin.com/in/jurybyrd/
+### Email: jbyrd4@gmail.com
+
+
+
+
+
 ### Hi there 👋
 
 <!--
